@@ -1,6 +1,6 @@
 # Baldur's Gate: Descent into Avernus
 
-Invite Link: https://ddb.ac/campaigns/join/20745322162021134
+Invite Link: [https://ddb.ac/campaigns/join/20745322162021134](https://ddb.ac/campaigns/join/20745322162021134)
 
 
 The holy city of Elturel has disappeared from the Forgotten Realms and descended into Avernus, the first layer of the Nine Hells. This event came about as the result of an infernal bargain between the archdevil Zariel, who rules Avernus, and the treacherous High Overseer of Elturel, Thavius Kreeg. Zariel is capturing cities and using their citizens as fodder in the ongoing conflict between demons and devils known as the Blood War. Next on Zariel’s list of cities is Elturel’s neighbor, Baldur’s Gate. The characters can be the heroes who descend into Avernus, save Elturel from certain destruction, and prevent a similar fate from befalling Baldur’s Gate.
